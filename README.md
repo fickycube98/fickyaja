@@ -1,0 +1,2 @@
+# fickyaja
+Pencarirupiahinternet
